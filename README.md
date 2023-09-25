@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **machine Learning**
 
-- 📫 How to reach me **javipinchito@outlook.com**
+- 📫 How to reach me **WHO KNOWS?**
 
 - ⚡ Fun fact **I'm incredibly obsessed with retro consoles 😅🎮👾**
 
