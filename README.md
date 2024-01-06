@@ -4,8 +4,6 @@
 
 - 🌱 I’m currently learning **machine Learning**
 
-- 📫 How to reach me **WHO KNOWS?**
-
 - ⚡ Fun fact **I'm incredibly obsessed with retro consoles 😅🎮👾**
 
 <h3 align="left">Connect with me:</h3>
